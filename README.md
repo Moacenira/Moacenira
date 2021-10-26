@@ -14,7 +14,7 @@ To relax I like:
 - 🌷🌼💐 take care of my plants.
 
 
-📝 See my resume by <a  target="blank" href="https://www.canva.com/design/DAEt9e-xbIs/share/preview?token=IovVzpsno8VqVxxpfK5eDw&role=EDITOR&utm_content=DAEt9e-xbIs&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton">clicking here</a>
+📝 See my resume by <a  target="blank" href="https://www.canva.com/design/DAEt9e-xbIs/EQBRo8TMYJtn_rG2AFczig/view?utm_content=DAEt9e-xbIs&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton">clicking here</a>
 
 <h3 align="left">Connect with me:</h3>
 <div>  
