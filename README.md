@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @Moacenira
 - 👀 I’m currently on career transition from accounting to technology.
-- 💬 I’m interested in learning more about HTML, CSS e Javascript, SQL, NODE e REACT.
+- 💬 I’m interested in learning more about HTML, CSS e Javascript, SQL, NodeJS e REACT.
 - 🆙 I'm currently a system development student, focused on the main frontend technologies.
-- 🌱 I’m currently 
 - 📫 How to reach me @ceniracardoso | cenira.cardoso@gmail.com
-- 👩 pronouns: "she" | "her",
+- 👩 pronouns: "she" | "her"
 
 To relax I like:
 
