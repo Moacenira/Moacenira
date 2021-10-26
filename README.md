@@ -8,7 +8,7 @@
 
 To relax I like:
 
-- 🐶 to bring with my 4 dogs
+- 🐶 to playing with my 4 dogs
 - 🍽🍕To cook something good
 - 📺 Watching a movie with my husband
 - 🌷🌼💐 take care of my plants.
